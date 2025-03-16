@@ -8,4 +8,4 @@
 - 💼 Trabalhando como Designer Gráfico e Assistente Financeiro
 - ✉️ Email para contato é gtoninjorge@gmail.com
 
-Foco em buscar conhecimento e aprimorar todos os dias minhas habilidades, apaixonado no mundo tecnologia. 💻
+Foco em buscar conhecimento e aprimorar todos os dias minhas habilidades. 💻
